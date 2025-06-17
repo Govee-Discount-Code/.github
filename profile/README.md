@@ -1,12 +1,16 @@
 # 10% Off Govee Discount Code + Up to 45% Off More Verified Deals
 
-Looking to upgrade your lighting setup or smart home experience? We’ve got an exclusive Govee discount just for you! Use **promo code DV10** to get **10% OFF** select items from Govee’s **Partner Exclusive Offers** collection. From immersive TV backlights to RGBIC LED strip lights, this is the perfect chance to save on top-rated smart lighting tech.  
+Looking to upgrade your lighting setup or smart home experience? We’ve got an exclusive Govee discount just for you! 
+
+Use **promo code DV10** to get **10% OFF** select items from Govee’s **Partner Exclusive Offers** collection. 
+
+From immersive TV backlights to RGBIC LED strip lights, this is the perfect chance to save on top-rated smart lighting tech.  
 
 And that’s not all—browse our verified Govee deals to save up to **45%** on bestsellers, limited-time bundles, and seasonal offers. Whether you're designing a gaming setup, syncing lights with music, or upgrading your ambiance, these deals help you light up your space for less.
 
 ---
 
-### 🎁 How to Use Govee Discount Code DV10:
+## 🎁 How to Use Govee Discount Code DV10:
 
 1. Visit the [Govee Partner Exclusive Offers page](https://us.govee.com/collections/partner-exclusive-offer-products)  
 2. Add your favorite eligible products to the cart  
@@ -19,7 +23,7 @@ And that’s not all—browse our verified Govee deals to save up to **45%** on 
 
 ---
 
-### 🔦 What Can You Save On?
+## 🔦 What Can You Save On?
 
 This exclusive code applies to a wide selection of smart lighting essentials, including:
 
@@ -32,7 +36,7 @@ This exclusive code applies to a wide selection of smart lighting essentials, in
 
 ---
 
-### 💸 Want Even More Savings?
+## 💸 Want Even More Savings?
 
 You can also check out **up to 45% off more verified Govee deals** on our coupon partner page:  
 👉 [View all working Govee promo codes at DealsValid](https://www.dealsvalid.com/brands/govee)
@@ -41,7 +45,7 @@ We’ve gathered limited-time offers, sitewide discounts, and holiday event prom
 
 ---
 
-### 🛒 Start Saving Now:
+## 🛒 Start Saving Now:
 
 Ready to light up your space for less?  
 🔗 Visit [us.govee.com/collections/partner-exclusive-offer-products](https://us.govee.com/collections/partner-exclusive-offer-products)  
