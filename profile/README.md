@@ -1,4 +1,4 @@
-# 10% Off Govee Discount Code + Up to 45% Off More Verified Deals
+# 10% Off Govee Discount Code + More Verified Deals
 
 Looking to upgrade your lighting setup or smart home experience? We’ve got an exclusive Govee discount just for you! 
 
